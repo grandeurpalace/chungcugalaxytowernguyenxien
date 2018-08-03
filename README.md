@@ -19,7 +19,7 @@ Chung cư Galaxy tower thuộc xã Thanh Liệt, Huyện Thanh Trì
 Với vị trí nằm ngay tại mặt đường Nguyễn Xiển, bên cạnh các dự án như the Manor Central Park, chung cư Bea sky, Eco Dream, Eco Green, Eden Rose …
 <h5><strong>GIỚI THIỆU VỀ VIDEC GROUP VÀ DỰ ÁN GALAXY TOWER NGUYỄN XIỂN</strong></h5>
 Videc Group ban đầu là Công ty cổ phần Đầu tư thiết kế và Xây dựng Việt Nam. Qua quá trình phát triển, công ty đã mở rộng lĩnh vực hoạt động kinh doanh và đổi tên thành Công ty cổ phần Tập đoàn VIDEC với các ngành nghề kinh doanh chính là đầu tư kinh doanh bất động sản, tư vấn thiết kế và thi công xây dựng cầu đường, khu công nghiệp…
-
+http://lienke-batdongsan.com/bat-dong-san-ha-noi/chung-cu-galaxy-tower-nguyen-xien-cdt-videc/
 [caption id="attachment_1505" align="aligncenter" width="700"]<img class="wp-image-1505" src="http://lienke-batdongsan.com/wp-content/uploads/2018/07/Untitled-1-01-300x135.jpg" alt="dự án chung cư galaxy tower" width="700" height="315" /> Phối cảnh dự án chung cư Galaxy Tower[/caption]
 <h3 style="text-align: center;">KINH NGHIỆM PHÁT TRIỂN DỰ ÁN TẠI HÀ NỘI GẮN LIỀN VỚI VIDEC GROUP.</h3>
 Với vai trò chủ đầu tư dự án, Videc hiện đang triển khai các dự án tại Hà Nội:
